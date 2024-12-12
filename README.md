@@ -14,7 +14,7 @@
 
 - 💬 Ask me about **Android-iOS, MERN**
 
-- 📫 How to reach me **bhautikvaghasiya23@gmail.com**
+- 📫 How to reach me **vaghasiyabhautik12@gmail.com**
 
 - ⚡ Fun fact **I think I am Funny**
 
